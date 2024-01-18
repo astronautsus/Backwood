@@ -1,2 +1,3 @@
 # Backwood
-this is a text quest, here you can get some wierd experience. BUT not everything is nice, you can see some murder scenes and violence. Anyway, if you want you can complete it ))))
+Этот квест должен получиться интересным, но поскольку автор ленивец и ннмного тупинг, всё может пойти не по плану. В любом случае недеюсь, что вам понравится. <3 
+Кстати, всё было переведено на русский, чтобы вам было удобно проходить данный квест)) 
